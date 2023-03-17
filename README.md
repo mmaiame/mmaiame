@@ -1,4 +1,4 @@
-### Hi there 👋 Olá, meu nome é Maiame Ribeiro. Tenho 28 anos, e sou mãe da Maya de 9 meses. Conheci a Escola do Futuro atraves do Instagram e me inscrevi para os cursos online.
+ 👋 Olá, meu nome é Maiame Ribeiro. Tenho 28 anos, e sou mãe da Maya de 9 meses. Conheci a Escola do Futuro atraves do Instagram e me inscrevi para os cursos online.
 
 
 <!--
